@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vladi-73
+- 👋 Hi, I’m Vladimir
 - 👀 I’m interested in IT direction.
 - 🌱I am currently looking for a job as a testing engineer with more than 3 years of experience and am learning programming languages along the way.
 - 💞️ I’m looking to collaborate on 
