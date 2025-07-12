@@ -5,7 +5,7 @@
 - 📫 How to reach me 
       kikboll@gmail.com  
       +79023573267
-      @Vfndenberg_71
+     Telegram: @Vandenberg_71
     
 
 <!---
