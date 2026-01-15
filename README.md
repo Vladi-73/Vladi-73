@@ -3,8 +3,8 @@
 - 🌱I am currently looking for a job as a testing engineer with more than 3 years of experience and am learning programming languages along the way.
 - 💞️It is with great interest that I respond to the job offer for a software testing engineer. I am confident that my skills and experience will allow me to make a significant contribution to the development of your team's projects. 
 - 📫 How to reach me 
-      kikboll@gmail.com  
-      +79023573267
+      kikboll2@eandex.ru
+      +79278361909
      Telegram: @Vandenberg_71
     
 
